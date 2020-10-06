@@ -1,2 +1,2 @@
 # Napoleon
-暂时还是新手~
+For the time being,it's a rookie!!!
